@@ -21,4 +21,4 @@ Depending on your network environment, download may require proxy.
 
 Please respect the permission of the author of the stickers packs. 
 
-!!Commercial purposes is strictly prohibited. 
+!!Commercial purposes are strictly prohibited. 
